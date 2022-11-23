@@ -11,4 +11,4 @@ Je m'appelle Audrey je suis développeuse j'aime Stardew Valley et je suis rigou
 
 ## Témoignage
 
-Audrey est un peu folle mais je l'aime bien car elle mange des sandwish à la cacahuète et la confiture
+Audrey est un peu folle mais je l'aime bien car elle mange des sandwichs à la cacahuète et la confiture
